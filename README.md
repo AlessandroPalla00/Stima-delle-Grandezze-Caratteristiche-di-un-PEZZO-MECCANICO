@@ -1,1 +1,0 @@
-# Stima-delle-Grandezze-Caratteristiche-di-un-PEZZO-MECCANICO
